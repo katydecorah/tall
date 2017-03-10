@@ -16,6 +16,7 @@ Pull requests accepted :information_desk_person:
 * [J. Crew](https://www.jcrew.com/c/womens_special_sizes/tall)
 * [Levis](http://www.levi.com/US/en_US/category/women/clothing/itemtype/jeans/length/34/_/N-2sZ1z13wzsZ8bgZ1z141pdZ1z13x71Z1z141qnZ1z140oj)
 * [DL 1961](http://www.dl1961.com/danny-riker-women-supermodel-skinny-jeans)
+* [Maurices](http://www.maurices.com/c/jeans/N-10590)
 
 ## Specializes in tall sizes
 
